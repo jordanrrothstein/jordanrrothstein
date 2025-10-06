@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jordanrrothstein, CEO @ King Tide
+- 👋 Hi, I’m Jordan. 
 - 
 
 <!---
